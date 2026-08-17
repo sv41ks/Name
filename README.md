@@ -1,5 +1,5 @@
-# README
-<br> Hi, you're from Pony Town. I'm likely AFK. I do not roleplay, at least much</br>
+# HELLO
+<br> You're from Pony Town. I'm likely AFK. I do not roleplay, at least much</br>
 <br>I like making ponies and looking at peoples websites. I just let the game sit in the background.</br>
 <br>Feel free to send me a friend request, I'll accept any on there.</br>
 <br>Don't worry about being around me or covering. C+H!!!</br>
