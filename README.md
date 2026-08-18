@@ -1,4 +1,4 @@
-# HELLO
+# $\color{#8B0000}\textsf{❝ Oh jeepers, you found me! ❞}$
 <img width="480" height="270" alt="NullRenderV2" src="https://github.com/user-attachments/assets/650f3388-9b94-48a4-b300-bea79daf210d" />
 <br> You're from Pony Town. I'm likely AFK. I do not roleplay, at least much. I am especially not chatty.</br>
 <br>I like making ponies and looking at peoples websites. I just let the game sit in the background.</br>
