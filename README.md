@@ -4,7 +4,6 @@
 <br> You're from Pony Town. I'm likely AFK. I do not roleplay, at least much. I am especially not chatty.</br>
 <br>I like making ponies and looking at peoples websites. I just let the game sit in the background.</br>
 <br>Feel free to send me a friend request, I'll accept any on there.</br>
-<br>Don't worry about being around me or covering.</br>
 <br>I will ALWAYS have my github linked.</br>
 <br>I am not staring at my screen all day. Though I usually come back every few minutes to click my screen to stay on since I don't use an autoclicker.</br>
 <br>If I'm not on, I'm either sleeping or not home - mainly on Fridays.</br>
